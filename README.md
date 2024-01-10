@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @jerry0224
+- 👋 Hi, I’m Jerry Yang
 - 👀 I’m interested in Self-enhancement.
 - 🌱 I’m currently learning HTML.
 - 💞️ I’m looking to collaborate on (X)
