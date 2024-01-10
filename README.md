@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jerry0224
-- 👀 I’m interested in self-enhancement.
+- 👀 I’m interested in Self-enhancement.
 - 🌱 I’m currently learning HTML.
 - 💞️ I’m looking to collaborate on (X)
 - 📫 How to reach me :jerrybaby0224@gmail.com
